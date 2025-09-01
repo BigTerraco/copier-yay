@@ -1,4 +1,4 @@
-# bigterraco
+# copier-yay
 
 images below aren't me, even if it looks like my old caine or my name format or whatever lol
 <img width="413" height="818" alt="image" src="https://github.com/user-attachments/assets/78cfc9e5-04a9-4293-b1b7-770e40b88ef9" />
